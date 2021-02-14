@@ -1,3 +1,3 @@
 # AMiRZzZzZz
-<img src="https://i.gifer.com/NfUp.gif"/>
-<img src="https://i.gifer.com/NfUp.gif" width="200px"/>
+
+<img src="/SN0O.gif" width="200px"/>
